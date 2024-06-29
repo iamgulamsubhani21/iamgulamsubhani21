@@ -1,4 +1,4 @@
-![logo](https://github.com/iamgulamsubhani21/iamgulamsubhani21/blob/main/WhatsApp%20Image%202024-06-27%20at%2012.10.20_de72845f.jpg)
+![logo](https://github.com/iamgulamsubhani21/iamgulamsubhani21/blob/main/Modern%20Black%20Gamer%20and%20Streamer%20Email%20Signature.png)
 <h1 align="center">Hi 👋, I'm Gulam Subhani</h1>
 <h3 align="center">A passionate software engineer from India</h3>
 
